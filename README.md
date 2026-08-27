@@ -1,1 +1,0 @@
-# theLOOP-master-plan
